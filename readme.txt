@@ -1,0 +1,1 @@
+ziema ir auksti, dazreiz snieg sniegs.
