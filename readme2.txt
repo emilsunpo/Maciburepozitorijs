@@ -1,0 +1,1 @@
+bet janu mes dzivojam latvija, bez sniega.
